@@ -33,7 +33,7 @@
 
 My wife calls me a unicorn.  
 
-***I make a friend everywhere I go.***  Living in rural North Carolina for my first 12 years gave me the kind, witty, hospitable southern charm that makes me approachable and easy to talk to.  **I'm empathetic.**  Moving across the country to Central California at the transformative age of 13 gave me a totally new perspective. **I know how to work hard and play hard.**  Moving to Las Vegas at 21 to attend UNLV full-time and work full-time taught me the importance of finding balance in all situations. **I'm a retro gaming and horror movie nerd.**  I'm in the middle of transforming my den with the ultimate gaming and movie theater set-up.
+***I make a friend everywhere I go.***  Living in rural North Carolina for my first 12 years gave me the kind, witty, hospitable southern charm that makes me approachable and easy to talk to.  ***I'm empathetic.***  Moving across the country to Central California at the transformative age of 13 gave me a totally new perspective. **I know how to work hard and play hard.**  Moving to Las Vegas at 21 to attend UNLV full-time and work full-time taught me the importance of finding balance in all situations. **I'm a retro gaming and horror movie nerd.**  I'm in the middle of transforming my den with the ultimate gaming and movie theater set-up.
 
 Currently, I manage the operations for one of the busiest Nike stores on Earth -- no, really, it's in the top 5.  We sell t-shirts and sneakers to people visiting Las Vegas from all over world at a pace that can be difficult to imagine without seeing it for yourself. It's an amazingly fun thrill has taught me an immense amount, but I'm looking for a change.
 
